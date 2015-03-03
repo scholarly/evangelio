@@ -1,5 +1,6 @@
-LA LIBRO DE NIFAI,
-KIU ESTAS LA FILO DE NIFAI---UNU EL LA DISĈIPLOJ DE JESUO KRISTO
+Kvara Nifai -- La Libro de Nifai
+================================
+Kiu estas la filo de Nifai---unu el la disĉiploj de Jesuo Kristo
 
 KAJ okazis, ke forpasis la tridek-kvara jaro, kaj ankaŭ la tridek-kvina, kaj jen la disĉiploj de Jesuo jam formis eklezion de Kristo en ĉiuj landoj ĉirkaŭe. Kaj ĉiuj, kiuj venis al ili, kaj vere pentis pri siaj pekoj, baptiĝis en la nomo de Jesuo; kaj ili ankaŭ ricevis la Sanktan Spiriton.
 2. Kaj okazis en la tridek-sesa jaro, ke la tuta popolo sur la tuta lando, kaj nifaidoj kaj lamanidoj, konvertiĝis al la Sinjoro, kaj kvereloj kaj disputoj ne okazis inter ili, kaj ĉiuj homoj juste intertraktis reciproke.

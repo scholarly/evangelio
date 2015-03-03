@@ -1,7 +1,9 @@
-## LA UNUA LIBRO DE NIFAI
-## LIA REGADO KAJ LIA SERVADO
+La Unua Libro de Nifai
+======================
 
-ĈAPITRO 1
+Lia Regado kaj lia Servado
+
+Ĉapitro 1
 ---------
 
 MI, Nifai, naskita de bonaj gepatroj kaj pro tio iom instruita pri ĉiuj sciaĵoj de mia patro; kaj vidinte multajn afliktojn dum la daŭro de miaj tagoj, tamen, estante ege favorata de la Sinjoro dum mia tuta vivo; jes, ricevinte grandan konon pri la boneco kaj la misteroj de Dio, pro tio mi faras kronikon pri miaj agoj dum mia vivo.

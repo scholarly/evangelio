@@ -1,8 +1,9 @@
-LA TRIA LIBRO DE NIFAI
+Tria Nifai -- La Libro de Nifai
+===============================
 
-LA FILO DE NIFAI, KIU ESTIS LA FILO DE HELAMAN
+la filo de Nifai, kiu estis la filo de Helaman
 
-ĈAPITRO 1
+Ĉapitro 1
 ---------
 
 TIAM okazis, ke la naŭdek unua jaro jam forpasis, kaj sescent jarojn antaŭe Lihai foriris de Jerusalemo; kaj la jaro estis tiu, kiam Lakoneus estis la ĉefjuĝisto kaj la estro super la lando.

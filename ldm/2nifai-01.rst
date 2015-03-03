@@ -1,6 +1,7 @@
-LA DUA LIBRO DE NIFAI
+La Dua Libro de Nifai
+=====================
 
-ĈAPITRO 1
+Ĉapitro 1
 ---------
 
 KAJ tiam okazis, ke, post kiam mi, Nifai, ĉesis instrui al miaj fratoj, ankaŭ nia patro, Lihai, parolis multon al ili kiel granda estis tio, kion la Sinjoro faris por ili, elkondukante ilin el la lando Jerusalema.
