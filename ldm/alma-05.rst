@@ -1,7 +1,8 @@
 LA LIBRO DE ALMA
 LA FILO DE ALMA
 
-### ĈAPITRO 5
+ĈAPITRO 5
+---------
 
 NUN okazis, ke Alma ekdonis la vorton de Dio al la popolo, unue en la lando Zarahemla, kaj de tie tra la tuta lando. 
 2. Kaj jen la vortoj, kiujn li parolis al la popolo de la Eklezio, kiu estis establita en la urbo Zarahemla, laŭ lia propra analo, dirante;

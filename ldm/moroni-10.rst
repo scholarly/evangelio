@@ -1,4 +1,5 @@
-### ĈAPITRO 10
+ĈAPITRO 10
+----------
 
 NUN mi, Moroni, skribas ion, kio ŝajnas al mi bone; kaj mi skribas al miaj fratoj, la lamanidoj; kaj mi volas, ke ili sciu, ke pli ol kvarcent dudek jaroj forpasis post la dono de la signo pri la veno de Kristo.
 2. Kaj mi sigelos ĉi tiujn analojn post kiam mi estos parolinta kelkajn vortojn de admono al vi.

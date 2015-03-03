@@ -1,4 +1,5 @@
-### ĈAPITRO 14
+ĈAPITRO 14
+----------
 
 KAJ tiam okazis, kiam Jesuo parolis ĉi tiujn vortojn, ke li turnis sin denove al la homamaso, kaj denove malfermis sian buŝon al ili, dirante; Vere, vere, mi diras al vi, ne juĝu, por ke vi ne estu juĝataj.
 2. Ĉar per kia juĝo vi juĝos, per tia vi estos juĝitaj; kaj per kia mezuro vi mezuros, per tia oni mezuros al vi.

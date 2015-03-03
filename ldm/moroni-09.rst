@@ -1,4 +1,5 @@
-### ĈAPITRO 9
+ĈAPITRO 9
+---------
 
 MIA amata filo, mi reskribas al vi por ke vi sciu, ke mi ankoraŭ vivas; sed mi skribos iom pri tio, kio estas maldolĉa.
 2. Ĉar jen, mi havis severan batalon kontraŭ la lamanidoj, en kiu ni ne venkis; kaj Arkeantus falis per la glavo, kaj ankaŭ Luram kaj Emron; jes, kaj ni perdis grandan nombron de niaj elitaj homoj.

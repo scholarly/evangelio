@@ -1,4 +1,5 @@
-### ĈAPITRO 28
+ĈAPITRO 28
+----------
 
 KAJ okazis, post kiam Jesuo diris ĉi tiujn vortojn, ke li parolis al siaj disĉiploj, unuope, dirante al ili: Kain peton vi deziras de mi, post kiam mi estos foririnta al la Patro?
 2. Kaj ili ĉiuj parolis, krom tri, dirante: Ni deziras, ke, post kiam nin vivis ĝis la aĝo de homo, nia pastroservado, al kiu vi vokis nin, havu finon, por ke ni rapide venu al vi en via regno.

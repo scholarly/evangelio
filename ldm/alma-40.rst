@@ -1,4 +1,5 @@
-### ĈAPITRO 40
+ĈAPITRO 40
+----------
 
 NUN, mia filo, jen iom plu mi volas diri al vi; ĉar mi perceptas, ke via menso maltrankvilas pri la releviĝo de la mortintoj.
 2. Aŭdu, mi diras al vi, ke okazos neniu releviĝo aŭ, mi preferas diri, alivorte, ke ĉi tiu mortema ne surmetos senmortecon, ĉi tiu putrema ne surmetos senputrecon ĝis post la veno de Kristo.

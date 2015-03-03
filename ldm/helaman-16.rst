@@ -1,4 +1,5 @@
-### ĈAPITRO 16
+ĈAPITRO 16
+----------
 
 KAJ okazis, ke multaj aŭdis la vortojn de Samuel la lamanido, kiujn li parolis sur la muroj de la urbo. Kaj ĉiuj, kiuj kredis liajn vortojn, eliris kaj serĉis Nifai; kaj, elirinte kaj trovinte lin, ili konfesis siajn pekojn al li kaj ne neadis, dezirante, ke ili baptiĝu al la Sinjoro.
 2. Sed ĉiuj, kiuj ne kredis la vortojn de Samuel, koleris kontraŭ li; kaj ili ĵetis ŝtonojn kontraŭ li sur la muro, kaj ankaŭ multaj pafis sagojn kontraŭ li dum li staris sur la muro; sed la spirito de la Sinjoro estis kun li, tiel ke ili ne povis trafi lin nek per siaj ŝtonoj nek per siaj sagoj.

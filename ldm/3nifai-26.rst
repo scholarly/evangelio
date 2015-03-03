@@ -1,4 +1,5 @@
-### ĈAPITRO 26
+ĈAPITRO 26
+----------
 
 KAJ tiam okazis, post kiam Jesuo diris ĉi tion, ke li klarigis ĝin al la popolamaso; kaj li klarigis al ili ĉion, kaj grandan kaj malgrandan.
 2. Kaj li diris; la Patro ordonis, ke mi donu al vi ĉi tiujn skribojn, kiujn vi ne havas ĉe vi; ĉar saĝecon li havas, ke ili estu donataj al estontaj generacioj.

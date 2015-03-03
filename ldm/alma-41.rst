@@ -1,4 +1,5 @@
-### ĈAPITRO 41
+ĈAPITRO 41
+----------
 
 KAJ nun, mia filo, mi havas iom por diri pri la restatigo, pri kiu oni parolis: ĉar, aŭdu, kelkaj tordis la skribojn, kaj erare forvagis malproksimen pro ĉi tio. Kaj mi vidas, ke via menso maltrankvilas ankaŭ pri ĉi tio. Sed aŭdu, mi klarigos ĝin al vi.
 2. Mi diras al vi, mia filo, ke la plano de restatigo estas postulata de la justeco de Dio; ĉar necesas, ke ĉio estu remetita en sia ĝusta ordo. Aŭskultu, estas necese kaj juste, laŭ la povo kaj releviĝo de Kristo, ke la animo de la homo estu restatigita al sia korpo, kaj ke ĉiu parto de la korpo estu restatigita al ĝi.

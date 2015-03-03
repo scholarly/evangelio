@@ -1,4 +1,5 @@
-### ĈAPITRO 22
+ĈAPITRO 22
+----------
 
 KAJ tiam okazos tio, kio estas skribita: ĝoju, ho senfruktulino, kiu ne naskis; sonigu kanton kaj ĝojkriu, ho vi, kiu ne suferis doloron; ĉar la forlasitino havas pli da infanoj, ol tiu havanta edzon, diras la Sinjoro.
 2. Vastigu la spacon de via tendo, disetendu la tapiŝojn de viaj loĝejoj; ne retenu, etendu pli longe viajn ŝnurojn, kaj viajn palisojn fortikigu.

@@ -1,4 +1,5 @@
-### ĈAPITRO 34
+ĈAPITRO 34
+----------
 
 KAJ tiam okazis, ke, parolinte ĉi tiujn vortojn al ili, Alma sidiĝis sur la tero, kaj Amulek leviĝis kaj ekinstruis al ili, dirante;
 2. Miaj fratoj, mi opinias, ke estas ne eble, ke vi ne scias pri tio, kio estas parolita pri la veno de Kristo, pri kiu ni instruis, ke li estas la Filo de Dio; jes, mi scias, ke tio estis malavare instruita al vi antaŭ via disiĝo de inter ni.

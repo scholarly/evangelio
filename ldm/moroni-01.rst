@@ -1,4 +1,5 @@
-### ĈAPITRO 1
+ĈAPITRO 1
+---------
 
 NUN mi Moroni, fininte resumon de la historio de la popolo Jareda, supozis, ke mi ne plu verkos, sed mi ankoraŭ ne pereis; kaj mi ne konigas min al la lamanidoj por ke ili ne mortigu min.
 2. Ĉar ili treege kruele intermilitas; kaj pro sia malamo ili mortigas ĉiun Nifaidon, kiu rifuzas fornei la Kriston.

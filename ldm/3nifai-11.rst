@@ -2,7 +2,8 @@ Jesuo Kristo montris sin al la popolo de Nifai, kiam la homamaso kunkolektiĝis 
 
 Konsistanta el ĉapitroj 11 ĝis 26 inkluzive.
 
-### ĈAPITRO 11
+ĈAPITRO 11
+----------
 
 KAJ tiam okazis, ke granda homamaso el la popolo de Nifai kunkolektiĝis ĉirkaŭ la templo, kiu estis en la lando Abundeco; kaj ili miradis unuj kun aliaj kaj montris unuj al aliaj la grandan kaj mirindan ŝanĝon, kiu okazis.
 2. Kaj ili ankaŭ interparoladis pri ĉi tiu Jesuo Kristo, pri kiu oni donis signon pri lia morto.

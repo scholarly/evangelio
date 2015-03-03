@@ -1,4 +1,5 @@
-### ĈAPITRO 33
+ĈAPITRO 33
+----------
 
 KAJ nun mi, Nifai, ne povas skribi ĉion, kio estis instruata inter mia popolo; kaj mi ne estas tiel potenca skribe, kiel parole; ĉar, kiam homo parolas per la potenco de la Sankta Spirito, la potenco de la Sankta Spirito portas ĝin en la korojn de la homidoj.
 2. Sed jen multaj malmoligas siajn korojn kontraŭ la Sankta Spirito, tiel ke ĝi ne havas loken en ili; pro tio ili forĵetas multon, kio estas skribita, kaj opinias ĝin senvalora.

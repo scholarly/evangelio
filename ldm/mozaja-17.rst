@@ -1,4 +1,5 @@
-### ĈAPITRO 17
+ĈAPITRO 17
+----------
 
 KAJ tiam okazis, kiam Abinadai finis ĉi tiujn dirojn, ke la reĝo ordonis, ke la pastroj prenu lin kaj mortigu lin.
 2. Sed inter ili estis iu, kies nomo estis Alma kaj kiu estis ankaŭ ido de Nifai. Kaj li estis junulo, kaj li kredis la vortojn, kiujn Abinadai diris, ĉar li sciis pri la malbona faro, pri kiu Abinadai atestis kontraŭ ili; tial li ekpledis al la reĝo, ke li ne koleru kontraŭ Abinadai, sed ke li permesu, ke li foriru en paco.

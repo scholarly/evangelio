@@ -1,4 +1,5 @@
-### ĈAPITRO 42
+ĈAPITRO 42
+----------
 
 KAJ nun, mia filo, mi vidas, ke maltrankviligas vian menson io pli, kion vi ne povas kompreni kio koncernas la justecon de Dio en la punado de la pekinto; ĉar vi emas supozi, ke estas maljuste, ke la pekinto estas transdonita al stato de mizero.
 2. Nun aŭskultu, mia filo, mi klarigos ĉi tion al vi. Post kiam Dio la Sinjoro eligis niajn unuajn geprapatrojn el la Edena Ĝardeno, por ke ili prilaboradu la teron, el kiu ili estis prenitaj jes, li elpelis la viron, kaj li lokis oriente antaŭ la Edena Ĝardeno kerubon kaj flaman glavon, kiu ĉiudirekten turniĝis, por gardi la arbon de vivo -

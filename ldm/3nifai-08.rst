@@ -1,4 +1,5 @@
-### ĈAPITRO 8
+ĈAPITRO 8
+---------
 
 KAJ tiam okazis, ke laŭ nia kroniko, kaj ni scias, ke nia kroniko estas vera, ĉar jen, virtulo kompilis la kronikon ĉar li vere faris multajn miraklojn en la nomo de Jesuo; kaj neniu homo povis fari miraklon en la nomo de Jesuo krom tiu, kiu estis ĉiel puriĝinta de siaj pekoj -
 2. Kaj okazis, se ĉi tiu viro faris neniun eraron en la kalkulado de nia tempo, ke la tridek tria jaro estis forpasinta;

@@ -1,4 +1,5 @@
-### ĈAPITRO 7
+ĈAPITRO 7
+---------
 
 KAJ nun mi, Moroni, skribis kelkajn el la vortoj de mia patro Mormon, kiujn li diris pri fido, espero kaj karitato; ĉar ĉi-maniere li parolis al la popolo, kiam li instruis al ili en la sinagogo, kiun ili konstruis kiel adorejon.
 2. Kaj nun mi Mormon, parolas al vi, miaj amataj fratoj; kaj per la graco de Dio la Patro kaj nia Sinjoro Jesuo Kristo kaj lia sankta volo, pro la dono de lia voko al mi, mi estas permesita paroli al vi nuntempe.

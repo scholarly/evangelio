@@ -1,4 +1,5 @@
-### ĈAPITRO 5
+ĈAPITRO 5
+---------
 
 OKAZIS, ke mi, Nifai, multfoje kriis al la Sinjoro, mia Dio, pro la kolero de miaj fratoj.
 2. Sed ilia kolero kontraŭ mi pligrandiĝis, tiom ke ili celis forpreni mian vivon.

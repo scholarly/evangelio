@@ -1,4 +1,5 @@
-### ĈAPITRO 8
+ĈAPITRO 8
+---------
 
 EPISTOLO de mia patro Mormon, skribita al mi, Moroni; kaj ĝi estis skribita al mi baldaŭ post mia alvoko al la servado. Kaj ĉi-maniere li skribis al mi, dirante:
 2. Mia amata filo, Moroni, mi treege ĝojas, ke via Sinjoro Jesuo Kristo memoris vin, kaj vokis vin al sia servado, kaj al sia sankta laboro.

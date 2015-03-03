@@ -1,4 +1,5 @@
-### ĈAPITRO 18
+ĈAPITRO 18
+----------
 
 KAJ okazis, ke ili adoris la Sinjoron, kaj eliris kun mi; kaj ni prilaboris lignon laŭ kurioza desegnaĵo. Kaj la Sinjoro montris al mi de tempo al tempo, laŭ kiu maniero mi prilaboru la lignaĵojn de la ŝipo. 
 2. Mi, Nifai, ja ne prilaboris la lignaĵojn laŭ la maniero, kiun homoj lernis, kaj mi ne konstruis la ŝipon laŭ la maniero de homoj; sed mi konstruis ĝin laŭ maniero, kiun la Sinjoro montris al mi; pro tio ĝi ne estis laŭ la maniero de homoj.

@@ -1,4 +1,5 @@
-### ĈAPITRO 21
+ĈAPITRO 21
+----------
 
 KAJ vere mi diras al vi, mi donos al vi signon, por ke vi sciu la tempon, kiam ĉi tio estos tuj okazonta kiam mi kolektos, post ilia longa disiĝo, mian popolon, ho domo de Izrael, kaj restarigos inter ili mian Cionon;
 2. Kaj jen, ĉi tio estas tio, kion mi donos al vi por signo ĉar vere mi diras al vi, ke, kiam ĉi tio, kion mi deklaras al vi, kaj kion mi mem poste deklaros, kaj kio per la potenco de la Sankta Spirito, kiun la Patro donis al vi, estos konigita al la nejudaj nacianoj, por ke ili sciu pri ĉi tiu popolo, kiu estas restaĵo de la domo de Jakob, kaj pri ĉi tiu popolo mia, kiun ili dispelos;

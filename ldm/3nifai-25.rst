@@ -1,4 +1,5 @@
-### ĈAPITRO 25
+ĈAPITRO 25
+----------
 
 ĈAR jen venos tago, ardanta kiel forno: tiam ĉiuj malhumiluloj kaj malbonaguloj estos kiel pajlo; kaj la venonta tago bruligos ilin, diras la Sinjoro de la armeoj, tiel ke ĝi ne restigos al ili radikon ne branĉon.
 2. Sed por vi, kiuj respektas mian nomon, leviĝos la Filo de justeco, kaj sanigo estos en liaj flugiloj; kaj vi eliros kaj saltados, kiel bone nutritaj bovidoj.

@@ -1,4 +1,5 @@
-### ĈAPITRO 13
+ĈAPITRO 13
+----------
 
 VERE, vere, mi diras, ke mi volas, ke vi donu almozojn al la malriĉuloj; sed gardu vin, ke vi ne faru vian justaĵon antaŭ homoj, por esti alrigardataj de ili; alie vi ne havas rekompencon ĉe via Patro, kiu estas en la ĉielo.
 2. Tial, kiam vi donos almozon, ne sonigu trumpeton antaŭ vi, kiel faras la hipokrituloj en la sinagogoj kaj sur la stratoj, por havi gloron ĉe homoj. Vere mi diras al vi; Ili jam ricevas sian rekompencon.

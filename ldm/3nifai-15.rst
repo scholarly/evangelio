@@ -1,4 +1,5 @@
-### ĈAPITRO 15
+ĈAPITRO 15
+----------
 
 KAJ tiam okazis, kiam Jesuo finis ĉi tiujn parolojn, ke li ĵetis siajn rigardojn ĉirkaŭen sur la homamason, kaj diris al ili: Jen, vi aŭdis tion, kion mi instruis antaŭ ol mi supreniris al mia Patro; tial ĉiun, kiu memoras ĉi tiujn miajn parolojn, mi levos en la lasta tago.
 2. Kaj okazis, kiam Jesuo diris ĉi tiujn vortojn, ke li vidis, ke kelkaj inter ili miregis, kaj scivolis, kion li volas fari pri la leĝo de Moseo; ĉar ili ne komprenis la parolon, ke malnovaĵoj neniiĝis, kaj ke ĉio fariĝis nova.

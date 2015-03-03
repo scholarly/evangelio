@@ -1,4 +1,5 @@
-### ĈAPITRO 2
+ĈAPITRO 2
+---------
 
 KAJ nun, Jakobo, mi parolas al vi: Vi estas mia unuenaskito en la tagoj de mia aflikto en la dezerto, Kaj en via infaneco vi ja suferis afliktojn kaj multe da malĝojo pro la krudeco de viaj fratoj.
 2. Tamen, Jakobo, mia unuenaskito en la dezerto, vi konas la noblecon de Dio; kaj li konsekros viajn afliktojn por via avantaĝo. 3. Pro tio, via animo estos benata, kaj vi sendanĝere vivos kun via frato Nifai; kaj viaj tagoj pasos en la servado de via Dio. Pro kio, mi scias, ke vi estas elaĉetota pro la justeco de via Elaĉetanto; ĉar vi vidis, ke en la pleneco de la tempo li venos por porti savon al la homoj.

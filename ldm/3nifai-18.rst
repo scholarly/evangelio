@@ -1,4 +1,5 @@
-### ĈAPITRO 18
+ĈAPITRO 18
+----------
 
 KAJ okazis, ke Jesuo ordonis al siaj disĉiploj, ke ili alportu iom da pano kaj vino al li.
 2. Kaj, kiam ili foriris por pano kaj vino, li ordonis al la homamaso, ke ĝi sidiĝu sur la tero.

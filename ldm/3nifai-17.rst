@@ -1,4 +1,5 @@
-### ĈAPITRO 17
+ĈAPITRO 17
+----------
 
 JEN, tiam okazis, post kiam Jesuo diris ĉi tiujn vortojn, ke li ĉirkaŭrigardis la homamason denove, kaj li diris al ili: Jen, mia tempo estas proksima.
 2. Mi vidas, ke vi estas malfortaj, ke vi ne povas kompreni ĉiujn miajn vortojn, kiujn la Patro ordonis al mi nuntempe diri al vi.

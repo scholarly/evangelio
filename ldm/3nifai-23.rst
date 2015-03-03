@@ -1,4 +1,5 @@
-### ĈAPITRO 23
+ĈAPITRO 23
+----------
 
 KAJ nun, jen, mi diras al vi, ke vi devus esplori ĉi tion. Jes, ordonon mi donas al vi, ke vi diligente esploru ĉi tion; ĉar grandaj estas la vortoj de Jesaja.
 2. Ĉar li vere parolis pri ĉio, kio rilatas al mia popolo, kiu estas de la domo de Izrael; estas do nepre necese, ke li parolu ankaŭ al la nejudaj nacioj.

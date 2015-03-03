@@ -1,4 +1,5 @@
-### ĈAPITRO 11
+ĈAPITRO 11
+----------
 
 NU, laŭ la leĝo de Mozaja ĉiu viro, kiu estis juĝisto de la Leĝo, aŭ tiuj, kiuj estis nomitaj esti juĝistoj, ricevu salajron laŭ la tempo dum kiu ili laboris por juĝi tiujn, kiuj prezentiĝis antaŭ ili por esti juĝataj.
 2. Se homo ŝuldis al alia, kaj ne volis pagi tion, kion li ŝuldis, oni denuncis lin al la juĝisto; kaj la juĝisto uzis sian aŭtoritaton kaj sendis oficistojn por ke la homo estu alkondukata antaŭ lin; kaj li juĝis la homon laŭ la leĝo kaj la atestoj, kiujn oni faris kontraŭ li, kaj sekve la homo estis devigata pagi tion, kion li ŝuldis, aŭ esti senposedigita, aŭ esti elpelita el la popolo kiel ŝtelinto kaj rabinto.

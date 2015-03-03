@@ -1,4 +1,5 @@
-### ĈAPITRO 4
+ĈAPITRO 4
+---------
 
 KAJ nun mi, Nifai, parolas pri la profetaĵoj, pri kiuj mia patro parolis, koncerne Jozefon, kiu estis forkondukita en Egipton.
 2. Ĉar li ja vere profetis pri sia tuta idaro. Kaj ne troviĝas multe da profetaĵoj, kiuj estas pli grandaj ol tiuj, kiujn li skribis. Kaj li profetis pri ni kaj niaj estontaj generacioj; kaj tio estas skribita sur la platoj el latuno.

@@ -1,6 +1,7 @@
 La ordonoj de Alma al sia filo Korianton
 
-### ĈAPITRO 39
+ĈAPITRO 39
+----------
 
 KAJ nun, mia filo, mi havas iom pli por diri al vi ol tion, kion mi diris al via frato; ĉar, aŭdu, ĉu vi ne rimarkis la konstantecon de via frato, lian fidelecon, kaj lian fervoron obeadi la ordonojn de Dio? Aŭskultu, ĉu li ne montris bonan ekzemplon por vi?
 2. Ĉar vi ne donis tiom da atento al miaj vortoj kiel via frato, inter la popolo de la Zoramidoj. Nun, tio estas, kion mi havas kontraŭ vi; vi daŭrigis fanfaronadon pri via forto kaj via saĝo.

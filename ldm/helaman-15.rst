@@ -1,4 +1,5 @@
-### ĈAPITRO 15
+ĈAPITRO 15
+----------
 
 KAJ nun, miaj amataj fratoj, jen, mi deklaras al vi, ke, se vi ne pentos, viaj domoj estos lasitaj al vi dezertaj.
 2. Jes, se vi ne pentos, viaj virinoj havos egan kialon por funebri en la tago, kiam ili suĉigos; ĉar vi provos fuĝi kaj ne estos rifuĝejo; jes, kaj ve al tiuj, kiuj estas gravedaj, ĉar ili estos pezaj kaj ne povos fuĝi; pro tio ili estos piedpremitaj kaj lasitaj perei.

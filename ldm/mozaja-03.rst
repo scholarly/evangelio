@@ -1,4 +1,5 @@
-### ĈAPITRO 3
+ĈAPITRO 3
+---------
 
 KAJ denove, miaj fratoj, mi volas altiri vian atenton, ĉar mi havas iom pli por aldiri al vi; ĉar aŭdu, mi havas ion por diri al vi pri tio, kio okazos.
 2. Kaj tio, kion mi diros al vi, sciigis al mi anĝelo de Dio. Kaj li diris al mi: Vekiĝu; kaj mi vekiĝis, kaj jen li staris antaŭ mi. 

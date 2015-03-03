@@ -1,4 +1,5 @@
-### ĈAPITRO 32
+ĈAPITRO 32
+----------
 
 KAJ nun, miaj amataj fratoj, mi supozas, ke en viaj koroj vi iom pripensas pri tio, kion vi faru post kiam vi eniras sur la vojon. Sed, kial vi pripensas tion en viaj koroj?
 2. Ĉu vi ne memoras, ke mi diris al vi, ke, ricevinte la Sanktan Spiriton, vi povos paroli per la lingvo de anĝeloj? Kaj nun, kiel vi povus paroli per la lingvo de anĝeloj krom nur per la Sankta Spirito?

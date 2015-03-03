@@ -1,4 +1,5 @@
-### ĈAPITRO 4
+ĈAPITRO 4
+---------
 
 LA maniero laŭ kiu iliaj plejaĝuloj kaj pastroj administris la karnon kaj sangon de Kristo al la eklezio; kaj ili administris ilin laŭ la ordonoj de Kristo; pro kio ni scias, ke la maniero estas vera; kaj la plejaĝulo aŭ pastro havigis (pastrumis pk) ilin -
 2. Kaj ili genuiĝis kun la eklezio, kaj preĝis al la Patro en la nomo de Kristo, dirante:

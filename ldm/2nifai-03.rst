@@ -1,4 +1,5 @@
-### ĈAPITRO 3
+ĈAPITRO 3
+---------
 
 KAJ nun mi parolas al vi, Jozefo, mia lastenaskito. Vi naskiĝis en la dezerto de miaj afliktaĵoj; jes, en la tagoj de mia plej granda malĝojo via patrino naskis vin.
 2. Kaj la Sinjoro konsekru ankaŭ al vi ĉi tiun landon, kiu estas plej ŝatinda lando, kiel vian heredaĵon kaj la heredaĵon de via idaro kun viaj fratoj por via sekureco por ĉiam, se vi obeos la ordonojn de la Sanktulo de Izraelo.

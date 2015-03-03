@@ -1,4 +1,5 @@
-### ĈAPITRO 2
+ĈAPITRO 2
+---------
 
 KAJ okazis, post kiam Mozaja faris tion, kion lia patro ordonis al li, kaj disigis proklamon tra la tuta lando, ke la popolo tra la tuta lando kuniĝis, por iri al la templo por aŭdi la vortojn, kiujn la reĝo Benjameno diros al ili.
 2. Kaj estis granda nombro, eĉ tiel multa, ke oni ne nombris ilin, ĉar ili treege multiĝis kaj grandiĝis en la lando.

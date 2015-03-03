@@ -1,4 +1,5 @@
-### ĈAPITRO 5
+ĈAPITRO 5
+---------
 
 KAJ jen okazis, kiam la reĝo Benjameno tiele parolis al sia popolo, ke li sendis homojn inter ilin, dezirante scii pri sia popolo, ĉu ili kredas la vortojn, kiujn li parolis al ili.
 2. Kaj ili ĉiuj unuanime kriis, dirante: Jes, ni kredas ĉiujn vortojn, kiujn vi parolis al ni; kaj ni ankaŭ scias pri ilia efektiveco kaj vero, pro la Spirito de la Sinjoro Plejpotenca, kiu faris grandegan ŝanĝon en ni, aŭ en niaj koroj, tiel ke ni ne plu deziras fari malbonon, sed volas konstante fari bonon.

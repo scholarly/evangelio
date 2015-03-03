@@ -1,4 +1,5 @@
-### ĈAPITRO 29
+ĈAPITRO 29
+----------
 
 KAJ nun jen mi diras al vi, ke kiam la Sinjoro en sia saĝo juĝos tion konvena, ke ĉi tiuj diroj venu al la Nacianoj konforme al sia vorto, tiam vi scios, ke jam ekplenumiĝas la interligo, kiun la Patro faris kun la Izraelidoj pri ilia reveno al la teroj de sia heredaĵo.
 2. Kaj vi scios, ke efektiviĝos ĉiuj vortoj de la Sinjoro, kiu estas parolitaj de la sanktaj profetoj; kaj ne necesos al vi diris, ke la Sinjoro prokrastas sian venon al la Izraelidoj.

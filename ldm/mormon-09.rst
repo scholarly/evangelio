@@ -1,4 +1,5 @@
-### ĈAPITRO 9
+ĈAPITRO 9
+---------
 
 KAJ nun, mi parolas ankaŭ pri tiuj, kiuj ne kredas je Kristo.
 2. Jen, ĉu vi kredos en la tago de via punvizito - jen, kiam la Sinjoro venos, jes, en tiu grandioza tago, kiam la tero kune ruliĝos kiel skribrulaĵo, kaj la elementoj brulante solviĝos, jes, en tiu grandioza tago, kiam vi estos starigitaj antaŭ la Ŝafido de Dio - ĉu vi tiam diros, ke ne ekzistas Dio?

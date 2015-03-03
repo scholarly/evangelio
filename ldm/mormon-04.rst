@@ -1,4 +1,5 @@
-### ĈAPITRO 4
+ĈAPITRO 4
+---------
 
 KAJ tiam okazis, ke en la tricent-sesdek-tria jaro la nifaidoj iris kun siaj armeoj el la lando Dezerteca por batali kontraŭ la lamanidoj.
 2. Kaj okazis, ke la armeoj de la nifaidoj estis repelitaj al la lando Dezerteca. Kaj dum ili estis ankoraŭ lacegaj, freŝa armeo de la lamanidoj atakis ilin; kaj ili forte batalis ĝis la lamanidoj okupis la urbon Dezerteca, kaj mortigis multajn de la nifaidoj, kaj prenis multajn kaptitojn.

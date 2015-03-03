@@ -1,4 +1,5 @@
-### ĈAPITRO 6
+ĈAPITRO 6
+---------
 
 KAJ nun mi, Nifai, ne donas la genealogion de miaj prapatroj en ĉi tiu parto de mia kroniko; kaj mi neniam donos ĝin poste sur ĉi tiuj platoj, kiujn mi surskribas; ĉar ĝi estas donita en la kroniko, kiun mia patro verkis; pro tio mi ne skribas ĝin en ĉi tiu verko.
 2. Ĉar sufiĉas por mi diri, ke ni estas idoj de Jozef.

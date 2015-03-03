@@ -1,4 +1,5 @@
-### ĈAPITRO 1
+ĈAPITRO 1
+---------
 
 KAJ nun mi, Mormon, faras kronikon pri tio, kion mi kaj vidis kaj aŭdis, kaj nomas ĝin la Libro de Mormon.
 2. Kaj ĉirkaŭ tiam, kiam Ammaron kaŝis la analojn por la Sinjoro, li venis al mi (mi tiam havis ĉirkaŭ dek jarojn, kaj mi ekkleriĝis laŭ la lernado de mia popolo), kaj Ammaron diris al mi: Mi rimarki, ke vi estas sobra infano, kaj ke vi estas observema.

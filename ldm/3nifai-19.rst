@@ -1,4 +1,5 @@
-### ĈAPITRO 19
+ĈAPITRO 19
+----------
 
 KAJ okazis, post kiam Jesuo supreniris en la ĉielon, ke la homamaso disiris, kaj ĉiu viro prenis sian edzinon kaj siajn infanojn kaj reiris al sia hejmo.
 2. Kaj tuj, antaŭ ol mallumiĝis, tra la popolo disvastiĝis la novaĵo, ke la homamaso vidis Jesuon, kaj ke li pastradis al ili, kaj ke li ankaŭ morgaŭ montros sin al la homamaso.

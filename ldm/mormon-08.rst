@@ -1,4 +1,5 @@
-### ĈAPITRO 8
+ĈAPITRO 8
+---------
 
 JEN mi, Moroni, finas la kronikon de mia patro Mormon. Jen, mi havas nur malmultajn skribotaĵojn, kiujn mia patro ordonis al mi skribi.
 2. Kaj tiam okazis post la granda kaj terura batalo ĉe Kumora, ke, jen, la nifaidoj, kiuj eskapis suden en la landon, estis ĉasataj de la lamanidoj ĝis ili ĉiuj estis ekstermitaj.

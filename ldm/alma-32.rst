@@ -1,4 +1,5 @@
-### ĈAPITRO 32
+ĈAPITRO 32
+----------
 
 KAJ okazis, ke ili eliris, kaj komencis prediki la vorton de Dio al la popolo, enirante iliajn sinagogojn kaj iliajn domojn; jes, kaj ili predikis la vorton eĉ en iliaj stratoj.
 2. Kaj okazis, ke post granda penado inter ili, ili ekhavis sukceson inter la malriĉa klaso de la popolo; ĉar tiuj estis elpelitaj el la sinagogoj pro la krudeco de siaj vestoj - 

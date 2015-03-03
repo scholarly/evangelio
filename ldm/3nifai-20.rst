@@ -1,4 +1,5 @@
-### ĈAPITRO 20
+ĈAPITRO 20
+----------
 
 KAJ okazis, ke li ordonis al la homamaso, kaj ankaŭ al siaj disĉiploj, ke ili ĉesu preĝi. Kaj li ordonis al ili, ke ili ne ĉesu preĝi en siaj koroj.
 2. Kaj li ordonis al ili, ke ili leviĝu kaj ekstaru sur siaj piedoj. Kaj ili leviĝis kaj stariĝis sur siaj piedoj.

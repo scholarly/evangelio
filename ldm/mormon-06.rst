@@ -1,4 +1,5 @@
-### ĈAPITRO 6
+ĈAPITRO 6
+---------
 
 KAJ nun mi finas mian kronikon pri la detruo de mia popolo, la nifaidoj. Kaj okazis, ke ni elmarŝis antaŭ la lamanidoj.
 2. Kaj mi, Mormon, skribis leteron al la reĝo de la lamanidoj, kaj alvokis al li, ke li permesu al ni, ke ni kunirigu nian popolon al la lando Kumora, apud monteto, kiu etis nomita Kumora, kaj tie ni povos interbatali kun ili.

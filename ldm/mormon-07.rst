@@ -1,4 +1,5 @@
-### ĈAPITRO 7
+ĈAPITRO 7
+---------
 
 KAJ nun, jen, mi volas paroli iom al la restaĵo de ĉi tiu popolo, kiu estas indulgita, se Dio eventuale donos al ili miajn vortojn, por ke ili sciu pri la aferoj de siaj patroj; jes, mi alparolas al vi, vi restaĵo de la domo de Izrael; kaj jen estas la vortoj, kiujn mi diras:
 2. Sciu, ke vi estas el la domo de Izrael.

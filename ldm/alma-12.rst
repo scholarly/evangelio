@@ -1,4 +1,5 @@
-### ĈAPITRO 12
+ĈAPITRO 12
+----------
 
 RIMARKINTE, ke la vortoj de Amulek silentigis Zeezrom-on, ĉar tiu vidis, ke Amulek surprizis lin en lia mensogado kaj trompado por detrui lin, kaj rimarkante, ke Zeezrom ektremas pro konscio pri sia kulpo, Alma malfermis sian buŝon kaj komencis paroli al li, kaj konfirmi la vortojn de Amulek, kaj klarigi aferojn pli profunde kaj malvolvi la Skribojn pli malkaŝe ol Amulek faris.
 2. La ĉirkaŭanta popolo aŭdis la vortojn, kiujn Alma diris al Zeezrom; ĉar la homamaso estis granda, kaj li parolis ĉi maniere;

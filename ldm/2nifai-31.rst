@@ -1,4 +1,5 @@
-### ĈAPITRO 31 
+ĈAPITRO 31
+----------
 
 KAJ nun mi, Nifai, ĉesas profeti al vi, miaj amataj fratoj. Kaj mi povas skribi pri nur kelkaj aferoj, kiuj, mi scias, certe okazos; kaj mi povas skribi nur kelkajn el la vortoj de mia frato Jakobo.
 2. Sekve, tio, kion mi skribis, sufiĉas por mi, krom kelkaj vortoj, kiujn mi devas paroli pri la doktrino de Kristo; pro tio mi parolos al vi klare, laŭ la klareco de mia profetado. 

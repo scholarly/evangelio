@@ -2,7 +2,8 @@ LA TRIA LIBRO DE NIFAI
 
 LA FILO DE NIFAI, KIU ESTIS LA FILO DE HELAMAN
 
-### ĈAPITRO 1
+ĈAPITRO 1
+---------
 
 TIAM okazis, ke la naŭdek unua jaro jam forpasis, kaj sescent jarojn antaŭe Lihai foriris de Jerusalemo; kaj la jaro estis tiu, kiam Lakoneus estis la ĉefjuĝisto kaj la estro super la lando.
 2. Kaj Nifai, la filo de Helaman, jam foriris al la lando Zarahemla, doninte al sia filo Nifai instrukciojn pri la platoj el latuno kaj pri ĉiuj analoj, kiujn oni konservis, kaj pri ĉio, kion oni konsideris sankta de post la foriro de Lihai el Jerusalemo.

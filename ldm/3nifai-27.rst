@@ -1,4 +1,5 @@
-### ĈAPITRO 27
+ĈAPITRO 27
+----------
 
 KAJ okazis, ke vojaĝante kaj predikante tion, kion ili kaj aŭdis kaj vidis, kaj baptante en la nomo de Jesuo, la disĉiploj kolektiĝis kaj unuiĝis, ege preĝante kaj fastante.
 2. Kaj Jesuo denove montris sin al ili, ĉar ili preĝadis al la Patro en lia nomo; kaj Jesuo venis kaj staris meze de ili, kaj diris al ili; Kion vi volas, ke mi donu al vi?

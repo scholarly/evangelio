@@ -1,4 +1,5 @@
-### ĈAPITRO 16
+ĈAPITRO 16
+----------
 
 KAJ vere, vere, mi diras al vi, ke mi havas aliajn ŝafojn, kiuj ne estas de ĉi tiu lando, nek el la lando Jerusalema, nek en iu parto de tiu lando ĉirkaŭe, kien mi iris por pastradi.
 2. Ĉar tiuj, pri kiuj mi parolas, estas tiuj, kiuj ankoraŭ ne aŭdis mian voĉon; kaj neniam mi montris min al ili.

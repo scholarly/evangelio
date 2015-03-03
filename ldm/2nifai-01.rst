@@ -1,6 +1,7 @@
 LA DUA LIBRO DE NIFAI
 
-### ĈAPITRO 1
+ĈAPITRO 1
+---------
 
 KAJ tiam okazis, ke, post kiam mi, Nifai, ĉesis instrui al miaj fratoj, ankaŭ nia patro, Lihai, parolis multon al ili kiel granda estis tio, kion la Sinjoro faris por ili, elkondukante ilin el la lando Jerusalema.
 2. Kaj li parolis al ili pri ilia ribelado sur la akvoj, kaj pri la kompato de Dio, kiu indulgis iliajn vivojn, tiel ke ili ne estis englutitaj en la maro.

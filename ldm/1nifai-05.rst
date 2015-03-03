@@ -1,4 +1,5 @@
-### ĈAPITRO 5
+ĈAPITRO 5
+---------
 
 KAJ okazis, ke, post kiam ni alvenis en la dezerton al nia patro, jen li pleniĝis de ĝojo, kaj ankaŭ mia patrino Sariaĥ treege ĝojis, ĉar ŝi vere funebris pro ni.
 2. Ĉar ŝi supozis, ke ni pereis en la dezerto; kaj ŝi ankaŭ plendis kontraŭ mia patro, dirante al li, ke li estas viziulo; dirante: Jen vi kondukis nin for de la lando de nia heredaĵo, kaj miaj filoj jam ne vivas, kaj ni pereas en la dezerto.

@@ -1,4 +1,5 @@
-### ĈAPITRO 6
+ĈAPITRO 6
+---------
 
 KAJ nun mi parolas pri la bapto. Jen plejaĝuloj, pastroj kaj instruistoj estis baptitaj; kaj ili baptiĝis nur se ili donis fruktojn taŭgajn por montri, ke ili estis indaj je tio.
 2. Kaj ili ricevis por bapto nur tiujn, kiuj venis kun rompita koro kaj suferanta spirito, kaj atestis al la eklezio, ke ili vere pentis pri ĉiuj siaj pekoj.

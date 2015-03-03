@@ -1,4 +1,5 @@
-### ĈAPITRO 3
+ĈAPITRO 3
+---------
 
 KAJ okazis, ke mi, Nifai, parolinte kun la Sinjoro, revenis al la tendo de mia patro.
 2. Kaj okazis, ke li parolis al mi, dirante: Jen, mi sonĝis sonĝon, en kiu la Sinjoro ordonis al mi, ke vi kaj viaj fratoj reiru al Jerusalemo.

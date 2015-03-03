@@ -1,4 +1,5 @@
-### ĈAPITRO 3
+ĈAPITRO 3
+---------
 
 LA maniero laŭ kiu disĉiploj, kiuj estis nomitaj la plejaĝuloj de la eklezio, ordini pastrojn kaj instruistojn -
 2. Preĝinte al la Patro en la nomo de Kristo, ili metis siajn manojn sur ilin, kaj diris:
